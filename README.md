@@ -1,1 +1,1 @@
-# baradighibungalow.com is under maintenance
+# "Baradighi The Bungalow" website is under maintenance
